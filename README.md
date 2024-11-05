@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Behaplayer
+- 👀 I’m interested in Java Telegram Bots
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me behaplayer123@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: this is my school account!
